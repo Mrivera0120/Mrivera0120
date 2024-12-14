@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mrivera0120
+- 👋 Hi, I’m @Mrivera0120 
 - 👀 I’m interested in everything technology. I enjoy finding things out and being able to understand why and how things work.
 - I've also found a love for business and trying to make things better in the work environment.I've worked in places where the work environment has not been the best or has depleted.
 - I want to start my own business and make sure that the environment is welcoming and consistently positve and also keep the environment well.
